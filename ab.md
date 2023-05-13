@@ -37,22 +37,7 @@ I experienced many paranormal things while connected to the consciousness of Joh
 They're extensively detailed in the various podcast interviews John and I did for the book if you have any curiosity.
 
 
-The next in the cycle was a book called _The Light Of Darkness: A Warrior's Tale for Our Time_.
-It chronicled the life and insights of a gentleman who at this point prefers to be disassociated from the book.
-In brief,
-he was a Navy SEAL and he'd also had the curious affectation of a half dozen near-death experiences in his life.
-They completely opened him up to the other side and he is what call a _free traveler_.
-A free traveler is the name I give to someone who is beyond the psychic.
-They are people who are freely able to move in many of the dimensions surrounding our physical world.
-This too was a fascinating experience,
-rife with paranormal activity in my home.
-In the years since it has published I have been found by people doing doctorates in artificial intelligence and ordained Buddhist monks,
-and they want
-&mdash;
-need
-&mdash;
-to discuss what I wrote In the book. 
-It's a very satisfying feeling for a writer. 
+
 
 The last in this cycle of books was a compilation of the life and work of one Andrew Bartzis,
 also known as the galactic historian,
@@ -362,8 +347,8 @@ What we are seeing in the new age spiritual community are wolves pretending to b
 evil people pretending to be saintly,  
 hiding behind a psychic ability or some commiseration with negative or demonic forces. 
 It's becoming a staple of our time,
-The new age version of the pathetic falsity of Jim and Tammy Faye Baker,
-or Jimmy Swaggart, 
+the new age version of the pathetic piety of Jim and Tammy Faye Baker,
+or the lascivious tendancies of Jimmy Swaggart, 
 the evangelical preacher who was caught in cheap Texas motels with twenty dollar crack whores on more than one occasion,  
 but where the Christian religious fraud artists seem to be only a liars, 
 the new age fraud artist is something much darker.
