@@ -454,14 +454,145 @@ He bought a home in Ohio where his parents lived and settled back into giving re
 He very quickly formed another inner circle. 
 One of the principal characters and servants of Bartzis's mission during this period was an Australian fellow by the name of Andre Hodge.  
 He's an affable and handsome fellow who continues his own spiritual service through his YouTube channel _ServantofTruth_.
-It only took a couple of years for the whole negative cycle to repeat itself.
+
+Another enthusisatic acolyte was Amir Jahangiri,
+who holds seven academic degrees, 
+including a doctorate in brain computer interfaces. 
+He's done postdoctoral work in artificial intelligence at the University of Essex, 
+London,
+England. 
+He comes from a family of academics. 
+Born in Iran, 
+he was raised in a highly religious culture. 
+He took up spiritual study years ago and works as a healer now.
+He began to have experiences with energetic beings. 
+Seeking counsel,
+he began to search for people who understood these things,
+and this is what led him into the world of Andrew Bartzis.
+
+
+I spoke to more people than just the ones represented in this article, 
+but many of them were too frightened to allow their names to be used and to have their stories told. 
+I can assure you that the cycle of abuse and psychic violence repeats itself in everyone who comes into the circle of Andrew Bartzis.  
+The only exception to that rule is David Ellis, 
+but that does not confer friendship between the two. 
+Ellis controls the strings in that relationship. 
+He's a thug, 
+a thief, 
+an extortionist, 
+and the principal at Universal Citizen Media (UCM),
+a fledgling startup broadcast platform that features channeling and various forms of new age hocus pocus.
+He cemented his relationship with Bartzis with blakcmail
+&mdash;
+Jeffrey Epstein style 
+&mdash;
+and Bartzis dances to the tune of Ellis.
+As insidious as it is,
+I have to say I applaud Ellis in this circumstance.
+
+
+Rounding out the characters who will be the bedrock of this article is Robert Brown. 
+He secured a position as audio-visual producer for Bartzis.
+Brown was a very likable fellow who had started a young family later on in life. 
+He was somewhere around fifty or fifty-five and had a five year old daughter. 
+I spoke to him regularly.  
+We had a lot in common. 
+We had both moved to Latin America as North American emmigrants, 
+he in Colombia where his American wife had family, 
+and me deep into the rainforest mountains of Costa Rica. 
+
+Brown was one of the first people to sidebar me when I finishws the manuscript with Bartzis,
+the first person to allude to some dark history in this magical circle around Bartzis. 
+He didn't get into too many details but it was enough for me to understand that something unsavory had happened. 
+This occurred when Bartzis and I had a falling out over the television writing position he assigned himself on the Stardust Ranch crew. 
+I carefully explained everything to Robert Brown and he immediately brought up the name of Andre Hodge. 
+He called it a repetition of the Hodge circumstance. 
+At that time I had no knowledge of Andre Hodge or what had happened between he and the galactic historian. 
+I let all of these things go and continued to work in some small capacity with Bartzis to promote our book, 
+but there was growing negative collateral in my mind regarding his reputation and his character.
 
 
 
+### Hodge
 
 
+The Andre Hodge scandal had just passed around the time that I entered into the circle of the galactic historian to prepare a book.  
+Nobody spoke about it. 
+I would have known nothing about it except for Robert Brown. 
+Hodge himself has been quite vocal.  
+He has given most of his theories on Bartzis on his own YouTube channel. 
+
+Hodge was instrumental in getting a version of Andrew's teachings into a salable format.  
+It took eight months.  
+It involved a painstaking transcription of all the public talks related to the galactic history given by Andrew over the years. 
+They titled it, 
+Galactic History 2.0. 
+It was really just a repackaging of all of Bartzis's material.  
+But nonetheless it sold very well. 
+For his eight months of painstaking work Bartzis threw $3,000 US dollars at Andre Hodge.
+According to Hodge the material sold USD $22,000.00 in the first week. 
+
+"I saw the other side of him...
+it was like a gold fever state."
+
+Andre tells the complete story [here](https://www.youtube.com/watch?v=akakBUEz-A4&ab_channel=ServantOfTruth.org) if you want to hear it in his own words.
+
+According to Hodge, 
+the talents of Andrew Bartzis are real and rare. 
+He refers to him as the _apex of perception_. 
+However, 
+he is quick to point out that Bartzis rejuvenates himself through the energy and integrity of the people around him,
+and consistently returns to negative behavior,
+failing the simplest of tests of character and integroty that a novitiate would pass.
+Depending on the abilities of the person he is taking from, 
+that accessing of energy could deplete or even kill. 
+Hodge is perhaps giving us one explanation for the multiple sudden cancer deaths around Bartzis. 
+The thanks that Hodge received for his selfless work was a massive psychic attack that it took three months of meditation to recover from.
 
 
+### Jahangiri
 
+Amir Jahangiri holds seven academic degrees, 
+including a doctorate in brain computer interfaces. 
+He's done postdoctoral work in artificial intelligence at the University of Essex, 
+London,
+England. 
+He comes from a family of academics. 
+Born in Iran, 
+he was raised in a highly religious culture. 
+He took up spiritual study years ago and works as a healer now.
+He began to have experiences with energetic beings. 
+Seeking counsel,
+he began to search for people who understood these things,
+and this is what led him into the world of Andrew Bartzis.
 
+He confirms the validity of Bartzis's psychic abilities.
+
+"First and foremost, 
+the gentleman is gifted,"
+
+Jahangiri went deep into the folds of the galactic historian and an offshoot called Universal Citizen Media (UCM),
+run by Ellis.
+Ellis claims gnosticism as a base of religious and spiritual expression. 
+He's closely associated with a Martinist system of Gnostic knowledge transference in Barbados. 
+Martinism is thinly veiled masonry, 
+and masonry is thinly veiled Kabbalah, 
+and while good results can come from any of these systems, 
+usually we've seen very negative results in the last few generations. 
+Ellis doesn't break that rule at all. 
+He's a thug, 
+a thief, 
+an extortionist, 
+and the principal at Universal Citizen Media (UCM),
+a fledgling startup broadcast platform that features channeling and various forms of new age hocus pocus.
+
+Another favorite tactic of Ellis is to clone somebody's phone so that he's able to view all of their text exchanges. 
+I've spoken to people who have been shown the text exchanges of colleagues of Ellis with their clients.  
+Healers who thought they were operating under the umbrella of privacy without any knowledge that they had been hacked by David Dean Ellis. 
+Now why Ellis would show these materials to third parties is anybody's guess. 
+He's clearly breaking the rules of blackmail here. 
+I guess he just can't help himself. 
+Some systemic lack of discipline and malformation in his growth cycles as a human being.
+
+Jahangiri confirms the energy harvesting practiced by Bartzis.
 

@@ -28,7 +28,7 @@ He builds his coursework as _Living the Mystical Life Daily_.
 It was a point of contention that I didn't do any of his revocations or any of his courses. 
 He reminded me at least fifteen times. 
 I had no interest in his course material. 
-The spiritual courses of Andrew bartis are not worth anybody's time. 
+The spiritual courses of Andrew Bartzis are not worth anybody's time. 
 At most you're going to jack up a psychic center and be imbalanced for a while,
 or worse.
 When you're looking at spiritual teachings always look at the teacher. 
@@ -65,7 +65,7 @@ a neutral and unloving word that denotes no relationship of affection and intima
 When in doubt follow the language. 
 People always give themselves away in their language. 
 No amount of neuro linguistic training can hide it from a language adept,
-and that about sums up everything that's wrong with this new age nonsense masquerading a spiritual guidance. 
+and that about sums up everything that's wrong with this new age nonsense masquerading as spiritual guidance. 
 Bartzis is at the top of this heap of rubbish and lies.
 
 
